@@ -1,5 +1,5 @@
 # 💫About Me :
-As a person who loves technology and human development
+As a person who loves technology and human development 💻🚀
 
 ## 🌐Socials
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/namlee21__) 
